@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Raissamvsh
+- 👋 Hi, I’m @Raissamv
 - 👀 I’m interested in: learn as much as I can.  
 - 🌱 I’m currently learning: Analysis and systems development
 - 💞️ I’m looking to collaborate on: I haven't decided yet, I'm starting.
